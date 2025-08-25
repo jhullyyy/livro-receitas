@@ -2,5 +2,6 @@
 
 Olá! bem vindo ao meu livro de receitas 👋🏻
 
-- Feijão-tropeiro
-
+- Feijão-tropeiro 🫛
+- Pudim 🍮
+- Bolo de cenoura 🥕
